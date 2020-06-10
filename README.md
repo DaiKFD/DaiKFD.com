@@ -1,0 +1,2 @@
+# DaiKFD.com
+My Legendary
